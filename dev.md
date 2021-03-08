@@ -1,3 +1,1 @@
-hey blue cow
-
-new update kraken
+some new content
